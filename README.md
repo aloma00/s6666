@@ -1,1 +1,21 @@
 # s6666
+http://www.bszoka.com
+http://www.daiya2.com
+http://www.dailui.com
+http://www.066999.net
+http://www.dadiko.com
+http://www.00mmyy.com
+http://www.00nyny.com
+http://www.00yynn.com
+http://www.czk520.com
+http://www.025990.com
+http://www.0701mj.com
+http://www.0733ty.com
+http://www.0770ja.com
+http://www.088999.net
+http://www.1100hu.com
+http://www.120200.net
+http://www.123112.net
+http://www.123122.net
+http://www.123133.net
+http://www.123155.net
